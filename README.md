@@ -7,6 +7,7 @@
 🏆|  "there are **some things** that I'd like to mention about;"
 
 • do not copy my skins or *post* them w/o my perm.
+
 • I **play** this for fun, so stop embarassing yourself just to make a **fight** w me.
 (p.s. I do know you just want to talk to me🙈🪞🪞)
 
