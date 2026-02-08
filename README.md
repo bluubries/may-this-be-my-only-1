@@ -1,3 +1,5 @@
-oh darling, curious about me or are you just interested?
+☎️ **ting ting**
 
-![IMG_0689](https://github.com/user-attachments/assets/09b4da2b-6899-4518-9cff-079987bc5d84)
+"oh darling, curious about *me* or are you just **interested**?" . . . 🎞️
+
+<img width="2048" height="1536" alt="Untitled68_20260208214526" src="https://github.com/user-attachments/assets/6179fc86-83ed-4725-b57d-c62b6656d904" />
